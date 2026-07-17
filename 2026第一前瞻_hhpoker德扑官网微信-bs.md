@@ -1,0 +1,191 @@
+<h1>hhpoker德扑官网微信-hhpoker俱乐部客服微信</h1><br><p><strong>2026年07月17日 22时48分14秒(UTC+8)</strong></p>
+<code>hhpoker德扑官网微信.微信✅客服【758672】—hhpoker德扑官网微信—✅微信【758672】德州扑克的竞技殿堂：德扑圈俱乐部官方网站
+
+当您希望体验高品质的德州扑克竞技时，寻找一个正规、安全的平台至关重要。德扑圈俱乐部，作为国内知名的扑克竞技品牌，为广大扑克爱好者提供了一个专业、公平的线上竞技环境。
+
+尽管其官方网站地址可能因网络更新而变动，但玩家务必通过官方认证渠道获取最新、准确的网址链接。一个真实的德扑圈官网，应该是界面设计专业、运营信息透明、安全措施严谨的。
+
+在如今信息繁杂的网络环境中，我们建议玩家直接通过已确认真实可靠的官方社交媒体账号或已成功参与游戏的朋友圈获取第一手信息，以确保个人账户与资金安全，享受纯粹的扑克竞技乐趣。</code>
+<br><hr><br>
+<h2>一、国内时政</h2><br>
+<h3>上海国资出手，这家具身智脑公司融了超亿元</h3><br><p>探索“算力超市”和“算力银行”，中国信通院启动生态共建计划<br><br> | 来源：<code>ry .xuelifudao.com</code></p><br><br>
+<h3>华为Pura 100系列打磨中：一大一小双尺寸 明年登场</h3><br><p>Soul 亮相WAIC 2026：首次展示AI硬件B Soul，预计8月逐步量产销售<br><br> | 来源：<code>mq .xuelifudao.com</code></p><br><br>
+<h3>企业微信：将加大力度识别、处置针对老年人开展过度营销的账号</h3><br><p>华为撤回“世界”商标申请，此前该商标使用范围包括汽车等<br><br> | 来源：<code>yv .xuelifudao.com</code></p><br><br>
+<h3>华为耳机联动豆包功能全量上线，鸿蒙手机也可以小艺 / 豆包双智能体在线</h3><br><p>消息称荣耀与阿里将官宣合作，或涉及下一代终端操作系统 Agentic OS 落地<br><br> | 来源：<code>vx .xuelifudao.com</code></p><br><br>
+<h3>利润超 10 亿美元、ARR 剑指千亿，Anthropic 抢先 OpenAI 冲击 IPO</h3><br><p>保时捷拟再裁员4000人：累计裁减近8000人，研发基地产能砍30%<br><br> | 来源：<code>ap .xuelifudao.com</code></p><br><br>
+<h3>苹果华为三星等品牌7款手机端侧生成式人工智能服务已备案</h3><br><p>微信鸿蒙版 App 获 8.0.19.35 尝鲜升级，小程序浮窗功能开始灰度<br><br> | 来源：<code>sg .xuelifudao.com</code></p><br><br>
+<h3>美国结束了针对69.5万辆特斯拉汽车因意外制动问题而展开的2022年调查</h3><br><p>高德开放平台世界地图升级：多类型导航上线，全球POI覆盖破3亿<br><br> | 来源：<code>th .xuelifudao.com</code></p><br><br>
+<h3>韩国拟面向14岁及以下未成年人出台社媒限制令</h3><br><p>赣锋锂业 2026 年半年度归母净利润 36.5 亿元-46 亿元，同比扭亏为盈，预增 787.07%-965.90%<br><br> | 来源：<code>lw .xuelifudao.com</code></p><br><br>
+<h3>直击WAIC丨机器人现场表演“弹钢琴”，手指灵活度堪比人类</h3><br><p>鸿蒙智行全新一代问界 M9 完成成渝双城往返挑战：实测续航超 630km，达成率 88％<br><br> | 来源：<code>ty .xuelifudao.com</code></p><br><br>
+<h3>4nm近售罄、部分8nm接近满载 三星晶圆代工开始选择性接单</h3><br><p>比上市价还贵：苹果官网上架 MacBook Neo 官翻机，起售价 4699 元<br><br> | 来源：<code>zo .xuelifudao.com</code></p><br><br>
+<h3>苹果AI完成合规备案 网友感慨中国用户终于用上满血版iPhone</h3><br><p>AI手机备案公示 行业发展将有何变化？<br><br> | 来源：<code>px .xuelifudao.com</code></p><br><br>
+<h3>岳云鹏理发店遇上“贪心”App，Apple这支隐私广告把我整笑了</h3><br><p>余承东展示享界G9集成式升顶帐篷：华为已申请专利！<br><br> | 来源：<code>jj .xuelifudao.com</code></p><br><br>
+<h3>直击WAIC丨金山办公连发两款智能体，CEO章庆元：办公软件正进入第三个时代</h3><br><p>消息称快手可灵 AI 将完成 30 亿美元融资：投后估值 180 亿美元，腾讯参投<br><br> | 来源：<code>ao .xuelifudao.com</code></p><br><br>
+<h3>智能体手机，带着锁链卷土重来？</h3><br><p>自变量机器人与深圳文旅达成战略合作<br><br> | 来源：<code>ur .xuelifudao.com</code></p><br><br>
+<h3>中国电信试验 AI 传输卫星视频新方案，效率比 H.265 提升 3.5 倍</h3><br><p>时隔 10 余年重返 PC 芯片市场：消息称三星研发 4nm 制程 AI PC 芯片 Gaia，目标明年量产<br><br> | 来源：<code>sg .xuelifudao.com</code></p><br><br>
+<h3>日本计划购买英伟达Rubin芯片 以打造本土机器人AI模型</h3><br><p>英伟达与丰田扩大合作，开发更安全、更智能的 L2++ 辅助驾驶汽车<br><br> | 来源：<code>yq .xuelifudao.com</code></p><br><br>
+<h3>世纪华通2026上半年净利润同比预增61.87%-79.57%</h3><br><p>小鹏MONA L03全球上市：售价12.38万元起，面向65个国家和地区同步开启销售<br><br> | 来源：<code>qn .xuelifudao.com</code></p><br><br>
+<h3>消息称华为 Mate 90 系列手机有望搭载基于韬定律的新麒麟芯片</h3><br><p>小米汽车：仿真和试验室测试确实能大幅提升研发效率，但无法完全替代真实路测<br><br> | 来源：<code>ne .xuelifudao.com</code></p><br><br>
+<h3>八年拉锯战终结 谷歌遭欧盟罚款41亿欧元</h3><br><p>爱诗科技完成29.8亿元C轮融资，阿里巴巴领投C+轮<br><br> | 来源：<code>vk .xuelifudao.com</code></p><br><br>
+<h3>华为：引望作为中国专家组核心成员深度参与联合国自动驾驶法规 ADS GTR 制定</h3><br><p>华为Mate XT2三折叠跳过麒麟9030：一步到位首发韬定律麒麟芯片<br><br> | 来源：<code>fr .xuelifudao.com</code></p><br><br>
+<h3>极狐阿尔法 T7 新车高清细节首发，华为乾崑 × 宁德时代 × 麦格纳三重加持</h3><br><p>学而思发布全新培优AI家教及旗舰学习机T6系列<br><br> | 来源：<code>mv .xuelifudao.com</code></p><br><br>
+<h3>摩根大通上调智谱目标价至2000港元，多家基石股东表态长期持有</h3><br><p>小米音箱升级：9 款已内置超级小爱，支持跨端多指令语控<br><br> | 来源：<code>rg .xuelifudao.com</code></p><br><br>
+<h3>粉笔：张小龙辞任执行董事、首席执行官及董事会主席</h3><br><p>“AI”一词诞生70年，看这场盛典如何诠释“AI在一起”<br><br> | 来源：<code>ql .xuelifudao.com</code></p><br><br>
+<h3>专家建议对新能源汽车开征消费税，新增收入划归地方政府</h3><br><p>AI和嘉宾想到了一起！挪威2：1淘汰科特迪瓦，双方几乎集体命中比分<br><br> | 来源：<code>kz .xuelifudao.com</code></p><br><br>
+<h3>靳玉志梳理华为乾崑合作模式，主分全栈和部件两大路线</h3><br><p>华为阔折叠首战告捷：累计激活量已突破200万台<br><br> | 来源：<code>xs .xuelifudao.com</code></p><br><br>
+<h3>单联瑜回应友商“暗讽”小米空调：行业需要清朗环境，用户会用脚投票</h3><br><p>西班牙1:0葡萄牙后再回看节目现场，谁才是真正的世界杯预言家？<br><br> | 来源：<code>do .xuelifudao.com</code></p><br><br>
+<h3>智谱完成约314亿港元配售，继续聚焦大模型技术摸高</h3><br><p>华为高管谈智驾兜底：华为要把能力先做好 车能修人身伤残修不好<br><br> | 来源：<code>ct .xuelifudao.com</code></p><br><br>
+<h3>传网易云音乐人运营团队全员被裁，客服回应：内容失实</h3><br><p>摩洛哥3：0横扫加拿大成首支八强队，AI集体看好却集体低估胜利尺度<br><br> | 来源：<code>hb .xuelifudao.com</code></p><br><br>
+<h3>丰田将借助 AI 把各部门 4.5 万个专业术语精简至 5000 个，以提升生产效率</h3><br><p>隆基绿能 2026 年半年度归母亏损 34 亿元到 38 亿元，同比亏损扩大 32.35%~47.92%<br><br> | 来源：<code>gv .xuelifudao.com</code></p><br><br>
+<h3>合法“脱手脱脚”开车再进一步！阿维塔官宣获L3自动驾驶测试牌照</h3><br><p>鼎龙股份港股IPO：董监高连续十余年减持套现超11亿 股权激励沦为套利工具？光刻胶在手订单规模不足5000万<br><br> | 来源：<code>hy .xuelifudao.com</code></p><br><br>
+<h3>三星今日股价走势揭示 市场对AI赢家的业绩提出更苛刻要求</h3><br><p>小鹏X9遭遇空气弹簧故障，官方致歉：将提供专项升级质保方案<br><br> | 来源：<code>ny .xuelifudao.com</code></p><br><br>
+<h3>特斯拉 6 月欧洲多国销量回暖，法国翻倍增长、挪威逆势大跌</h3><br><p>英伟达与三菱重工拟在 AI 数据中心领域展开合作，将冷却与能源管理技术融入下一代 AI 数据中心<br><br> | 来源：<code>ri .xuelifudao.com</code></p><br><br>
+<h3>哈兰德双响淘汰五星巴西！内马尔泪别世界杯，联想AI持续护航八强争夺</h3><br><p>美光斥资90亿美元扩建日本西部芯片工厂<br><br> | 来源：<code>xh .xuelifudao.com</code></p><br><br>
+<h3>泡泡玛特王宁探访苹果公司总部 再度会面库克并赠送LABUBU</h3><br><p>松下抛弃动力电池转攻 AI，官宣 5000 亿日元巨额投资<br><br> | 来源：<code>un .xuelifudao.com</code></p><br><br>
+<h3>苹果、三星通过人工智能服务备案，知情人士：百度均系AI合作伙伴</h3><br><p>AI短剧，为何共用一张脸？<br><br> | 来源：<code>ws .xuelifudao.com</code></p><br><br>
+<h3>苏宁易购完成客优仕控股公开挂牌转让</h3><br><p>三星首款阔折叠Galaxy Z Fold8定档7月：对标华为Pura X Max<br><br> | 来源：<code>ec .xuelifudao.com</code></p><br><br>
+<h3>AI 12中12，人类6猜5中，但刚果（金）把英格兰逼出冷汗</h3><br><p>企业微信加码治理过度营销：上线拉群确认机制，强化账号处置<br><br> | 来源：<code>cp .xuelifudao.com</code></p><br><br>
+<h3>苹果供应商立讯精密据悉计划将香港发行价格定在上限</h3><br><p>直击WAIC｜李开复现场发布新书《AI未来已来》，谈企业AI转型焦虑<br><br> | 来源：<code>nh .xuelifudao.com</code></p><br><br>
+<h3>比亚迪欧洲市场特别顾问阿尔塔维拉：已将西班牙、法国列入建厂候选名单</h3><br><p>鸿海报告销售额大增 得益于AI需求强劲<br><br> | 来源：<code>tz .xuelifudao.com</code></p><br><br>
+<h3>华为乾崑 2026 上半年安全出行报告发布，辅助驾驶活跃用户数占比 97.5%</h3><br><p>消息称腾讯考虑入股 Manus，或成为其第一大股东<br><br> | 来源：<code>mp .xuelifudao.com</code></p><br><br>
+
+<h2>二、民生社会</h2><br>
+<h3>软银选定前高盛交易员掌舵愿景基金财务和技术事务</h3><br><p>突破Coding模式  OpenAI宣布GPT-5.6全量上线<br><br> | 来源：<code>xh .xuelifudao.com</code></p><br><br>
+<h3>宇树机器人给猪做了台手术，登上Nature</h3><br><p>加速精品量产 阅文发布起点剧场、漫剧助手DramaBuddy<br><br> | 来源：<code>rw .xuelifudao.com</code></p><br><br>
+<h3>高德充电发布"神算Agent"，用AI重构充电站选址与定价逻辑</h3><br><p>比亚迪第1700万辆新能源汽车下线，海豹08重塑大型旗舰家轿价值标杆<br><br> | 来源：<code>io .xuelifudao.com</code></p><br><br>
+<h3>支付宝AI开放平台上线，肯德基、蜜雪冰城、瑞幸、高德打车、滴滴等首批接入</h3><br><p>小米 Poco M8 Power 海外机型曝光，为 REDMI Note 17 标准版手机“套娃机”<br><br> | 来源：<code>ni .xuelifudao.com</code></p><br><br>
+<h3>国内首个针对 L2 级辅助驾驶的强制性国家标准正式发布，华为引望、小米、比亚迪、特斯拉、蔚小理等联合起草</h3><br><p>亚马逊硬件主管 Panos Panay：正以自研芯片重塑沉浸式 AI 体验<br><br> | 来源：<code>xh .xuelifudao.com</code></p><br><br>
+<h3>科大讯飞：上半年归母净利润预增5%~25%，境外营收增长160%</h3><br><p>华为5G手机登陆海外市场！Pura 90s Pro系列发布：6150元起<br><br> | 来源：<code>js .xuelifudao.com</code></p><br><br>
+<h3>消息称三星晶圆代工 6 月有望实现三年来首次月度盈利</h3><br><p>尊界V800/V680预售周报发布：丰田埃尔法的天要塌了<br><br> | 来源：<code>jt .xuelifudao.com</code></p><br><br>
+<h3>Counterpoint：618 期间中国智能手机销量同比下滑 13%，华为成唯一增长品牌</h3><br><p>逆势降价！华为Mate 80 RS非凡大师开启1000元优惠 10999元起<br><br> | 来源：<code>mf .xuelifudao.com</code></p><br><br>
+<h3>小米汽车：澎程系列计划发布五座版和七座版两个车型，分别属于中大型 SUV 和大型 SUV</h3><br><p>荣耀杀入阔折叠赛道：首发高通骁龙8E6 Pro<br><br> | 来源：<code>kc .xuelifudao.com</code></p><br><br>
+<h3>直击WAIC|李开复现场发布新书《AI未来已来》，谈企业AI转型焦虑</h3><br><p>SHEIN 希音国际控股有限公司港股 IPO 获中国证监会备案<br><br> | 来源：<code>ww .xuelifudao.com</code></p><br><br>
+<h3>半年近4400万次使用 余承东振奋：华为车位到车位俘获大量车主</h3><br><p>泰嘉股份业绩大增：大股东二股东接连减持 服务器电源业务成色如何？<br><br> | 来源：<code>lu .xuelifudao.com</code></p><br><br>
+<h3>“亚洲希望”澳大利亚点球出局， 12家AI“三派对决”：6家押平，5家直接命中1：1</h3><br><p>同花顺崩了！客服回应：已反馈运营商紧急核实处理<br><br> | 来源：<code>ji .xuelifudao.com</code></p><br><br>
+<h3>蚂蚁灵波入选WAIC镇馆之宝</h3><br><p>鸿蒙电脑再添新成员！MateBook MOR系列通过3C认证：66W快充+麒麟芯片<br><br> | 来源：<code>di .xuelifudao.com</code></p><br><br>
+<h3>Lazada与Meta达成合作 拓展东南亚社交电商市场</h3><br><p>清爽版AI支付宝正式开放公测！无需邀请码：所有人都能用<br><br> | 来源：<code>oy .xuelifudao.com</code></p><br><br>
+<h3>消息称苹果首款折叠屏 iPhone 已在量产阶段，代工龙头富士康启动大规模招工</h3><br><p>2415万台式机采购大单揭晓：浪潮独揽1362万 华为第二、联想第三<br><br> | 来源：<code>qo .xuelifudao.com</code></p><br><br>
+<h3>头部汽车经销商暴雷跑路？兰天集团声明：不实信息，整体经营稳定向好</h3><br><p>99万机器人“伴侣”续航撑不过一晚？优必选：属行业普遍情况<br><br> | 来源：<code>qn .xuelifudao.com</code></p><br><br>
+<h3>风阻系数低至0.24Cd！岚图追光S官宣全车10组贯穿式风道、19个风口</h3><br><p>五星巴西意外出局，12大模型集体翻车，DeepSeek、Kimi、千问等5大AI模型预测巴西夺冠失败<br><br> | 来源：<code>ze .xuelifudao.com</code></p><br><br>
+<h3>首发U型三折叠！华为专利图揭晓Mate XT2折叠方式</h3><br><p>追赶OpenAI！曝Anthropic正与三星洽谈，拟联手开发自研AI芯片<br><br> | 来源：<code>uu .xuelifudao.com</code></p><br><br>
+<h3>驰援广西防汛救灾 新东方、东方甄选捐赠600万元现金及物资</h3><br><p>事关家电行业未来5年发展 60万亿重磅利好来了<br><br> | 来源：<code>cm .xuelifudao.com</code></p><br><br>
+<h3>消息称台积电大幅扩展 PIC 产能：预计 2028 年将达到每月 2.5 万片晶圆</h3><br><p>华为车BU总裁李文广：纯视觉不足以支撑L4级自动驾驶<br><br> | 来源：<code>iw .xuelifudao.com</code></p><br><br>
+<h3>月之暗面B端负责人黄震昕：中国模型有望年内达Fable级水平，AI带来生产力质变</h3><br><p>中国电信副总经理栾晓维：推动从传统流量经营向Token经营转型，目标是让AI好用、管用、用得起<br><br> | 来源：<code>bl .xuelifudao.com</code></p><br><br>
+<h3>华为nova 16系列首月销量破85万台：全系麒麟9系芯 2999元起</h3><br><p>OpenAI 首度回应苹果诉讼：相信公平竞争，未发现任何证据<br><br> | 来源：<code>vp .xuelifudao.com</code></p><br><br>
+<h3>多位果链企业人士称“没听说”苹果首款折叠屏 iPhone 延期发售，预计 9 月可正常交付</h3><br><p>SpaceX总裁Shotwell将向特朗普账户捐赠SpaceX股票<br><br> | 来源：<code>jg .xuelifudao.com</code></p><br><br>
+<h3>2026年Q2全球手机出货量下滑6.7%：市场出现两极分化</h3><br><p>华境 S 大六座 SUV 官宣 6 月交付 5689 台：标配华为乾崑智驾 ADS Pro 增强版，15.98 万元起<br><br> | 来源：<code>yb .xuelifudao.com</code></p><br><br>
+<h3>AI版支付宝开放公测：上线72项办事技能</h3><br><p>反垄断案败诉，谷歌被勒令向瑞典支付巨头 Klarna 子公司支付 143 亿瑞典克朗<br><br> | 来源：<code>mz .xuelifudao.com</code></p><br><br>
+<h3>高德AI专车升级：标准化服务进化为个性化服务</h3><br><p>比亚迪第 1700 万辆新能源汽车下线，旗舰新车海豹 08 登场<br><br> | 来源：<code>mx .xuelifudao.com</code></p><br><br>
+<h3>IDC 报告 2026 年 Q2 全球智能手机出货量同比下滑 6.7%：小米跌幅最大但有意为之，三星、苹果、华为逆势上涨</h3><br><p>华为 Pura X2 迭代小阔折手机官方调研曝光，常规升级可能会涨价 1000 元<br><br> | 来源：<code>qf .xuelifudao.com</code></p><br><br>
+<h3>孙东旭与明明、天权合开公司 俞敏洪回应：孩子出去了总得找活干</h3><br><p>HarmonyOS 6设备数破7000万：6.1版本大规模推送，千元机也能升级方舟引擎<br><br> | 来源：<code>sr .xuelifudao.com</code></p><br><br>
+<h3>“满眼血红色，头晕眼花！”麻辣王子“光污染广告”惹怒乘客，深圳地铁听劝整改，网友评价“毫无美感”</h3><br><p>联想天禧AI生态全阵容亮相BW2026 多款AI新品集中发布<br><br> | 来源：<code>xo .xuelifudao.com</code></p><br><br>
+<h3>断网后智驾数据仍滚动上涨 华为回应：页面做了平滑处理</h3><br><p>史上最强nova！华为nova 16系列销量破72万台：单周新增超13万台<br><br> | 来源：<code>vh .xuelifudao.com</code></p><br><br>
+<h3>趋境科技完成A轮融资，半年募资超10亿元</h3><br><p>慧仑科技与京东达成深度战略合作，共建具身智能机器人规模化应用新生态<br><br> | 来源：<code>dz .xuelifudao.com</code></p><br><br>
+<h3>直击WAIC丨瑞幸咖啡携全链路数智化实践成果亮相</h3><br><p>华为鸿蒙 HarmonyOS 7.0.0.23 SP52 Developer Beta 版本开启推送<br><br> | 来源：<code>qe .xuelifudao.com</code></p><br><br>
+<h3>“车还没提，门店就跑了？” 智己汽车多地经销商突然“暴雷”：短信安慰车主，员工集体讨薪，官方回应</h3><br><p>封神！12家AI全员精准命中，葡萄牙2：1绝杀克罗地亚<br><br> | 来源：<code>qz .xuelifudao.com</code></p><br><br>
+<h3>AI 5秒挖出潜伏15年的漏洞！Google重奖61万元</h3><br><p>邬贺铨院士：2030年国内对话类Token流量将下降至12%，智能体服务流量占比升至75%<br><br> | 来源：<code>pt .xuelifudao.com</code></p><br><br>
+<h3>B 社工会声援 XBOX 被裁员工：微软高层还要错到何时</h3><br><p>消息称大众集团 10 款车型即将被砍，含捷达、ID.5、奥迪 Q5 Sportback 等<br><br> | 来源：<code>wl .xuelifudao.com</code></p><br><br>
+<h3>SK海力士赴美上市 华尔街投行合计佣金有望达1.4亿美元</h3><br><p>台积电 2026 年 6 月营收 4426.8 亿元新台币，同比增长 67.9%<br><br> | 来源：<code>zp .xuelifudao.com</code></p><br><br>
+<h3>IDC：2025年中国AI编程市场阿里Qoder第一</h3><br><p>猛士 X700 官图发布：采用“原创雄魂美学基因”设计，华为乾崑同步上车<br><br> | 来源：<code>jh .xuelifudao.com</code></p><br><br>
+<h3>岚图梦想家9申报图曝光，为首款带升降立标MPV</h3><br><p>华为 MatePad 11.5 S 灵动款、MatePad Air 12 英寸鸿蒙焕新版上市，2999 元起<br><br> | 来源：<code>yf .xuelifudao.com</code></p><br><br>
+<h3>00后创始团队华源智因宣布获数千万种子轮融资，水木创投领投</h3><br><p>享界 2026 上半年累计交付 21018 辆，已连续 8 个月蝉联 30 万元以上新能源轿车销量冠军<br><br> | 来源：<code>ac .xuelifudao.com</code></p><br><br>
+<h3>近百家私募现身上半年成立ETF前十大持有人名单</h3><br><p>郭明錤称苹果折叠屏手机可能重演 iPhone X 剧本：同场发布、较晚开卖，供应紧张延续至年底<br><br> | 来源：<code>cm .xuelifudao.com</code></p><br><br>
+
+<h2>三、科技产业</h2><br>
+<h3>通富微电 2026 年半年度归母净利润 16 亿元～ 18 亿元，同比预增 288.26%~336.80%</h3><br><p>洛图科技：2026 年 5 月中国家用路由器线上市场规格升级抬高均价，华为、小米、普联分列销量前三<br><br> | 来源：<code>ri .xuelifudao.com</code></p><br><br>
+<h3>618国内手机销量同比降13%，华为21%份额成唯一正增长</h3><br><p>华为靳玉志：L3 与 L4 规模商用预计 2027 年、2028 年实现<br><br> | 来源：<code>ic .xuelifudao.com</code></p><br><br>
+<h3>奕境首创「天穹智盾」安全架构：融合华为乾崑智驾 ADS 5，首车 X9 今年第三季度上市交付</h3><br><p>原抖音直播负责人钱景离职：架构调整后权力交接，金黄龙全面接棒<br><br> | 来源：<code>an .xuelifudao.com</code></p><br><br>
+<h3>马斯克与 SEC 就推特持股披露案达成 150 万美元和解协议，法官“有重大疑虑”但仍放行</h3><br><p>消息称可灵AI将完成30亿美元融资，腾讯参投<br><br> | 来源：<code>lu .xuelifudao.com</code></p><br><br>
+<h3>豆包：智能体功能将下线 10月15日后无法查看相关数据</h3><br><p>比苹果 iPhone 要薄：马斯克 SpaceX 向投资者展示 AI 原型机<br><br> | 来源：<code>vs .xuelifudao.com</code></p><br><br>
+<h3>市场担忧致半导体股集体下跌：英特尔跌近 10%，三星、SK 海力士超 4%</h3><br><p>比亚迪、华为引望都已推出智驾兜底 蔚来为什么没跟进？李斌回应<br><br> | 来源：<code>wv .xuelifudao.com</code></p><br><br>
+<h3>长征十号乙首飞锁定 7 月 10 日至 7 月 13 日期间，验证首创的“海上网系回收”技术</h3><br><p>两个行业每月减少2.8万个工作岗位 AI对就业的影响昭然若揭<br><br> | 来源：<code>kv .xuelifudao.com</code></p><br><br>
+<h3>消息称美国政府与 Anthropic 尚未商议政府入股该公司一事</h3><br><p>美光科技将向特朗普账户投资2.5亿美元<br><br> | 来源：<code>sw .xuelifudao.com</code></p><br><br>
+<h3>奔腾小马变「旋转木马」？ 一汽奔腾3万元微型车被指频繁失控，大量车主晒视频质疑「设计缺陷」</h3><br><p>别墅可用：华为靳玉志实测启境 GT7，首曝 ADS 5 能自定义收藏没划线的「野生车位」<br><br> | 来源：<code>bp .xuelifudao.com</code></p><br><br>
+<h3>翻开新篇章！华为海外发布 Pura 90s Pro 系列手机，官网正式标注 5G NR 参数</h3><br><p>脉脉校招数据：名校生对芯片企业关注度直逼大厂，海光、寒武纪进热搜榜<br><br> | 来源：<code>sm .xuelifudao.com</code></p><br><br>
+<h3>比亚迪大汉、方程豹方程 S、智界 RX 等未上市新车集中亮相工信部减免购置税目录</h3><br><p>消息称 DeepSeek 筹备 IPO，最快今年内提交上市申请<br><br> | 来源：<code>ac .xuelifudao.com</code></p><br><br>
+<h3>我们问了12个大模型谁进四强，11个交出了同一张答卷，只有百度文心说……</h3><br><p>Momenta 官宣搭载量突破百万，合作品牌含奔驰、宝马、奥迪等<br><br> | 来源：<code>fs .xuelifudao.com</code></p><br><br>
+<h3>减少对外依赖：微软自研 AI 模型 MAI 开始接手 Office 应用，逐步替代 OpenAI 和 Anthropic</h3><br><p>阿里整合QoderWork、悟空、MuleRun，将推出新的生产力AI产品<br><br> | 来源：<code>ly .xuelifudao.com</code></p><br><br>
+<h3>微盟WAI全新升级，打造AI智能经营引擎</h3><br><p>网易严选牵头发布首个鲜蒸宠粮团体标准，累计参编10项宠物团标<br><br> | 来源：<code>yd .xuelifudao.com</code></p><br><br>
+<h3>恋与深空敖尹取消上线，承诺不再推出新男主</h3><br><p>已囤近200个界系商标！华为界字辈家族再扩容：龙界、铭界上榜<br><br> | 来源：<code>qn .xuelifudao.com</code></p><br><br>
+<h3>消息称字节跳动正探索自动驾驶 旗下Seed世界模型团队负责</h3><br><p>零跑汽车：D19 的 400 尊享版和 680 三电机性能版 8 月起陆续开启批量交付<br><br> | 来源：<code>mf .xuelifudao.com</code></p><br><br>
+<h3>核能供电 AI：Valar 成功用先进反应堆为英伟达 Blackwell 芯片供电</h3><br><p>Moonix AI眼镜标准版7月17日全球同步发售，2299元起<br><br> | 来源：<code>uk .xuelifudao.com</code></p><br><br>
+<h3>孙天祥入职百度，担任基础模型研发部负责人</h3><br><p>大麦国际推出全新厂牌ORCA 启动全球演艺人才招募计划<br><br> | 来源：<code>ru .xuelifudao.com</code></p><br><br>
+<h3>小红书官宣十二个地方联赛集体入驻，世界杯后持续加码足球</h3><br><p>李斌：6月燃油车和增程车销量大幅下降，技术路线明显向纯电收敛<br><br> | 来源：<code>ns .xuelifudao.com</code></p><br><br>
+
+<h2>四、国际热点</h2><br>
+<h3>1300台小鹏批量交付神州租车，神州租车CEO高德武：计划未来一年再采购5000台小鹏车型</h3><br><p>72 款 App 涉违规收集个人信息被通报，含爱回收、平安证券等微信小程序<br><br> | 来源：<code>nq .xuelifudao.com</code></p><br><br>
+<h3>最低售价超18万人民币 比亚迪海豚G DM-i单月出口9000台！</h3><br><p>英伟达Kyber NVL144机架架构或遭遇延迟：PCB成关键瓶颈<br><br> | 来源：<code>co .xuelifudao.com</code></p><br><br>
+<h3>重磅回归！曝华为 Pura 90 系列手机国际版将支持 5G 通信</h3><br><p>神策数据“新三年战略”：发布 Sensors AI ，打造L4级 AI Growth Team<br><br> | 来源：<code>ot .xuelifudao.com</code></p><br><br>
+<h3>美图 RoboNeo 接入Seedream 5.0 Pro</h3><br><p>曾一手打造“外卖帝国”，印度亿万富翁戈亚尔瞄准可穿戴设备、低成本航空领域<br><br> | 来源：<code>vs .xuelifudao.com</code></p><br><br>
+<h3>麒麟9000系列产能没问题了！华为Pura 90要走向全球 7月14吉隆坡见</h3><br><p>字节绩效规则调整：加大半年激励，加强字节范与领导力考核<br><br> | 来源：<code>eq .xuelifudao.com</code></p><br><br>
+<h3>REDMI Note17 Pro体验：能用好多年的小金刚</h3><br><p>科技牛，买龙头！科技宽基Pro Max锋芒毕露<br><br> | 来源：<code>eg .xuelifudao.com</code></p><br><br>
+<h3>西班牙2：1绝杀比利时！AI集体“开天眼”，人类嘉宾罕见全中</h3><br><p>荣耀 × 张雪机车联名手表开箱<br><br> | 来源：<code>kp .xuelifudao.com</code></p><br><br>
+<h3>特斯拉确认开发轮椅无障碍自动驾驶汽车，残障出行或迎新变革</h3><br><p>小红书发布世界杯小组赛观赛报告：直播观看人次增长40倍，6253个热点爆发<br><br> | 来源：<code>zl .xuelifudao.com</code></p><br><br>
+<h3>华为乾崑智驾 ADS 5 OTA / 商用年度计划公布，首个版本本月推送</h3><br><p>消息称阿里巴巴全面禁用 Anthropic 旗下 Claude 产品：7 月 10 日生效，全员卸载<br><br> | 来源：<code>qa .xuelifudao.com</code></p><br><br>
+<h3>AI高光一战：12家全押美国赢，4家直接命中2：0</h3><br><p>赛果2：0瑞士完胜阿尔及利亚，12家AI全员押中胜势、4家命中精准比分<br><br> | 来源：<code>bb .xuelifudao.com</code></p><br><br>
+<h3>3年翻3倍！中国汽车芯片国产化率飙升至18%</h3><br><p>突发！美巨头辉瑞前总部大楼恐局部坍塌<br><br> | 来源：<code>js .xuelifudao.com</code></p><br><br>
+<h3>Meta 面临美国四州 1.4 万亿美元天价索赔，被控设计成瘾性产品危害青少年</h3><br><p>IDC最新数据出炉：国内市场连跌五个季度，内存暴涨300%拖垮千元机<br><br> | 来源：<code>co .xuelifudao.com</code></p><br><br>
+<h3>慕帆动力完成超5亿元融资，启明创投、红杉中国等投资</h3><br><p>三星盖乐世AI已备案：国行版三星手机AI服务合规落地<br><br> | 来源：<code>sx .xuelifudao.com</code></p><br><br>
+<h3>法国没有给童话留缝：《人机大战》赛前那道“大概率”，被2:0写成了答案</h3><br><p>不堪入目！堂堂上市公司，卖电鸡都要擦边<br><br> | 来源：<code>wz .xuelifudao.com</code></p><br><br>
+<h3>东风日产高管发文：我是坚定的小米支持者</h3><br><p>恋与深空致歉并宣布退出BW展会：全额承担玩家退票损失<br><br> | 来源：<code>qt .xuelifudao.com</code></p><br><br>
+<h3>全球车企利润大缩水：特斯拉单车利润暴跌 40%</h3><br><p>岚图追光 S 跃日红车色官图发布：7 月下旬开启预售，定位“四激光驾趣 SUV”<br><br> | 来源：<code>tg .xuelifudao.com</code></p><br><br>
+<h3>希音获上市备案通知书，港股IPO在即</h3><br><p>10个AI押中英格兰，但没人算出这场阿兹特克狂战<br><br> | 来源：<code>ib .xuelifudao.com</code></p><br><br>
+<h3>苹果起诉OpenAI AI Agent时代的硬件入口争夺战开打</h3><br><p>韩国据称准备应对SK海力士在美国发行上市带来的资金流动<br><br> | 来源：<code>ow .xuelifudao.com</code></p><br><br>
+<h3>苹果起诉 OpenAI 及两名前员工窃取商业机密</h3><br><p>华为：乾崑智驾 ADS 4 升级至 ADS 5 不存在硬件限制<br><br> | 来源：<code>bp .xuelifudao.com</code></p><br><br>
+<h3>华为ADS 5首次暗夜实测：120km/h逆光识别14cm障碍物 奕境X9三季度上市</h3><br><p>鸿蒙智行享界 MPV 新车谍照再曝，支持后轮转向<br><br> | 来源：<code>la .xuelifudao.com</code></p><br><br>
+<h3>神州租车CEO高德武：用户已将智驾纳入租车核心考量要素，采购5000台小鹏只是开始，上不封顶</h3><br><p>最“单薄”Mac 芯片系列：消息称苹果 M6 仅规划基础版，跳过 Mac mini 等多数产品线<br><br> | 来源：<code>xf .xuelifudao.com</code></p><br><br>
+<h3>高温侵袭，中国空调“拯救”欧洲人</h3><br><p>零跑全新B01和B10上市：搭载全域800V碳化硅高压平台，售价9.58万元起<br><br> | 来源：<code>ej .xuelifudao.com</code></p><br><br>
+<h3>即日起，安卓备份数据将占用谷歌账号存储空间</h3><br><p>液冷风口下的飞龙股份：控股股东高位套现 液冷业务成色究竟如何？<br><br> | 来源：<code>zc .xuelifudao.com</code></p><br><br>
+<h3>雷军谈 SkyNomad 小米澎程新车：历时 3 年半，打造一个“活的空间”</h3><br><p>消息称豆包 AI 手机今年将发布多款机型，由字节跳动联合中兴努比亚打造<br><br> | 来源：<code>dd .xuelifudao.com</code></p><br><br>
+<h3>奇观！20万一只猴 为什么不去峨眉山抓？</h3><br><p>山姆拟更新评价规则：重复及低参考价值评价将被折叠<br><br> | 来源：<code>jc .xuelifudao.com</code></p><br><br>
+<h3>12个AI都猜对了阿根廷，却没有一个真正算到佛得角</h3><br><p>不再只讨好年轻人，雷军终于对中登下手了<br><br> | 来源：<code>fd .xuelifudao.com</code></p><br><br>
+<h3>存储价格暴涨进行时 大摩为何坚定看涨苹果与联想集团</h3><br><p>美团推“一镜到底”验真，外卖商家后厨、堂食等实况公开展示<br><br> | 来源：<code>sw .xuelifudao.com</code></p><br><br>
+<h3>荣耀与张雪机车联名款手表将在BW2026上发布，定制专属机车模式</h3><br><p>“家电不换成格力，凭什么分红？” 董明珠股东会言论惹争议，婉拒签名称“我不是雷总”<br><br> | 来源：<code>ml .xuelifudao.com</code></p><br><br>
+<h3>何小鹏：自动驾驶发展速度超过预期，未来3到5年可以看到L4甚至L5落地</h3><br><p>华为9月旗舰双发：Mate XT2首创U型三折叠，硬刚苹果折叠屏iPhone Ultra<br><br> | 来源：<code>vy .xuelifudao.com</code></p><br><br>
+<h3>微软 Xbox 业务计划裁员 3200 人，剥离至少 4 个游戏工作室</h3><br><p>华为鸿蒙 HarmonyOS 7 花粉 Beta 适配机型公布，含 Mate 60、Pura 70、畅享 70X 等<br><br> | 来源：<code>ff .xuelifudao.com</code></p><br><br>
+<h3>消息称苹果正为在华销售设备测试长鑫 DRAM 内存</h3><br><p>传美团限制业务团队使用豆包 官方暂无回应<br><br> | 来源：<code>hp .xuelifudao.com</code></p><br><br>
+<h3>昇腾A2芯片立功！华为首次公开美团LongCat-2.0部署细节：推理仅20ms</h3><br><p>安兔兔发文称某设备宣传的跑分存疑不予认可，疑似点名红魔？<br><br> | 来源：<code>nr .xuelifudao.com</code></p><br><br>
+<h3>澳大利亚最大电信公司 Telstra 服务故障，打车付不了钱、列车暂停运营</h3><br><p>首款2nm阔折叠要来了？荣耀新机搭载骁龙8E6 Pro 明年有望登场<br><br> | 来源：<code>dw .xuelifudao.com</code></p><br><br>
+<h3>德银策略师：美股二季度企业盈利有望大幅超预期</h3><br><p>礼鼎港股IPO：FCBGA售价逐年下滑靠低价抢量 产能利用率不足35%仍募资扩产 总债务突破59亿元现金流杯水车薪<br><br> | 来源：<code>pi .xuelifudao.com</code></p><br><br>
+<h3>吉利汽车上半年销量超142万辆，单月出口量破10万辆</h3><br><p>西班牙补时绝杀葡萄牙晋级八强！C罗世界杯谢幕，联想AI持续见证传奇时刻<br><br> | 来源：<code>su .xuelifudao.com</code></p><br><br>
+<h3>我国可复用火箭实现历史性突破，卫星组网“大航天时代”将至？</h3><br><p>万兴科技旗下万兴剧厂“无限画布”、新品Filmora.AI与Virbo AI亮相WAIC 2026<br><br> | 来源：<code>hc .xuelifudao.com</code></p><br><br>
+<h3>“忍痛请部分人下船”，欧派家居被曝内部信“劝下岗”，多地经销商失联“跑路”</h3><br><p>比亚迪携旗下三大汽车品牌亮相英国古德伍德速度节，腾势Z全球首发售价约130万元起<br><br> | 来源：<code>vt .xuelifudao.com</code></p><br><br>
+<h3>完全没竞品！华为全新小阔折手机2027年发布</h3><br><p>一汽丰田 2027 款格瑞维亚 MPV 上市：华为定制语言大模型、预留小米 PAD 接口，限时焕新价 23.68 万起<br><br> | 来源：<code>tt .xuelifudao.com</code></p><br><br>
+<h3>比亚迪海豹08上市：全系标配天神之眼B-辅助驾驶激光版，售价19.69万元-23.99万元</h3><br><p>五菱华为联手发力！华境S 6月交付5689台 跻身大六座第一梯队<br><br> | 来源：<code>zl .xuelifudao.com</code></p><br><br>
+<h3>TCL回应“国家一级文物出现广告字样”：从未授权或参与该文物展陈中放置品牌标识</h3><br><p>大屏赛道“开卷”：曝“华米 OV 耀”规划有阔折叠 / 直板、7 英寸大屏手机等新品<br><br> | 来源：<code>ex .xuelifudao.com</code></p><br><br>
+
+<h2>五、文体娱乐</h2><br>
+<h3>诺贝尔经济学奖得主皮萨里德斯：AI 无法让西方经济体重返生产率快速增长时代</h3><br><p>「车还没提，门店就跑了？」 智己汽车多地经销商突然「暴雷」：短信安慰车主，员工集体讨薪，官方回应<br><br> | 来源：<code>bl .xuelifudao.com</code></p><br><br>
+<h3>黑猫投诉2026上半年数码产品投诉数据报告：投诉量近4万件 手机/平板投诉占六成</h3><br><p>比亚迪一句话解释“什么才是真兜底”：不收费、赔付无上限、不影响来年保费<br><br> | 来源：<code>ui .xuelifudao.com</code></p><br><br>
+<h3>旗舰受困 升级Sonnet 5救场 能力直追Opus</h3><br><p>逆势增产 20%：消息称华为 2026 年智能手机出货目标 6000 万部，成唯一增长的中国品牌<br><br> | 来源：<code>ek .xuelifudao.com</code></p><br><br>
+<h3>联想：世界杯决赛开启超级黄金抽奖专场，将一次性抽出500g黄金</h3><br><p>内存涨价重创手机市场！全球Q2出货量大跌6.7% 苹果、三星逆势突围<br><br> | 来源：<code>ix .xuelifudao.com</code></p><br><br>
+<h3>智谱创始人唐杰内部信：未来两年，将战略性投入四大核心引擎</h3><br><p>华为、小米、比亚迪、特斯拉等联合起草！辅助驾驶强制国标发布 视线/手脱离就警告等<br><br> | 来源：<code>fb .xuelifudao.com</code></p><br><br>
+<h3>京东AI Agent与腾讯元宝正式打通小程序生态</h3><br><p>小鹏机器人业务负责人米良川离职，此前何小鹏已亲自挂帅机器人业务<br><br> | 来源：<code>pi .xuelifudao.com</code></p><br><br>
+<h3>悦鲜活正式登陆新加坡，奥运冠军郭晶晶助阵</h3><br><p>连续五季度下滑！国内手机市场遇冷，仅苹果华为逆势增长<br><br> | 来源：<code>fg .xuelifudao.com</code></p><br><br>
+<h3>哈兰德双响送巴西出局，12家AI全部押注巴西取胜集体翻车</h3><br><p>中国移动抗 DDoS 设备集采公示，华为中标 50% 以上成最大赢家<br><br> | 来源：<code>nd .xuelifudao.com</code></p><br><br>
+<h3>何小鹏：小鹏 MONA L03 将 1500TOPS 有效算力带进 2 万美元级 SUV，还有满血版第二代 VLA</h3><br><p>特斯拉 Robotaxi 服务进军美国迈阿密，车内无安全员<br><br> | 来源：<code>hp .xuelifudao.com</code></p><br><br>
+<h3>SK海力士CEO预警：明年存储行业将迎史上最严重供应短缺</h3><br><p>软银集团向OpenAI投资100亿美元<br><br> | 来源：<code>sf .xuelifudao.com</code></p><br><br>
+<h3>销量达150亿片的“磁动力”卫生巾竟为消毒产品？公司回应：已根据相关部门指导做出整改</h3><br><p>消息称大众汽车考虑出售兰博基尼、杜卡迪等高价值品牌，为转型筹措资金<br><br> | 来源：<code>nt .xuelifudao.com</code></p><br><br>
+<h3>努比亚率先完成智能体大模型备案</h3><br><p>谷歌未能推翻欧盟针对安卓的41亿欧元反垄断罚款<br><br> | 来源：<code>mt .xuelifudao.com</code></p><br><br>
+<h3>北京越野泰钽 700 豪华越野 SUV 将于 7 月 21 日开启预售，搭华为乾崑智驾 ADS 5 高阶辅助驾驶系统</h3><br><p>鸿蒙智选海雀智能摄像头 5 Pro 4K 全场景版上架：8MP 传感器，支持双向语音通话，首发价 268 元<br><br> | 来源：<code>lk .xuelifudao.com</code></p><br><br>
+<h3>时速 120 公里：鸿蒙智行享界 G9 正式获批北京市 L3 级自动驾驶道路测试牌照</h3><br><p>知情人士：Anthropic正与三星洽谈定制AI芯片代工合作<br><br> | 来源：<code>if .xuelifudao.com</code></p><br><br>
+<h3>宁德时代等头部资本入局启境汽车，总额 10 亿元战略增资正式落地</h3><br><p>等效3nm工艺！华为Mate90系列将首发基于韬定律的新麒麟芯片 9月见<br><br> | 来源：<code>ba .xuelifudao.com</code></p><br><br>
+<h3>深圳父女卖存储狂赚38亿！冲刺港股IPO：全球第五大独立存储器厂诞生</h3><br><p>前华为智驾大模型负责人入局具身智能，创立“墨奇智能”半年估值超70亿<br><br> | 来源：<code>xo .xuelifudao.com</code></p><br><br>
+<h3>华为 nova 15 系列悄然涨价：全系上调 300 元，现价 2999 元起</h3><br><p>斗牛士火力全开！西班牙3球零封奥地利强势挺进16强，全场AI胜负判断零失误<br><br> | 来源：<code>ja .xuelifudao.com</code></p><br><br>
+<h3>美国众议院通过法案淘汰冬夏令时切换，我国曾在 40 年前短暂试行</h3><br><p>一个贴砖工人的“第六感”，给AI预测上了一课<br><br> | 来源：<code>qk .xuelifudao.com</code></p><br><br>
+<h3>国产AI安全强势出海！华为与马来西亚签下网络安全协议：总理亲自站台</h3><br><p>腾讯混元Hy3正式发布<br><br> | 来源：<code>nq .xuelifudao.com</code></p><br><br>
+<h3>存储芯片，中国科学家取得新突破</h3><br><p>中国无人车首入中亚，百度萝卜快跑将驶入哈萨克斯坦<br><br> | 来源：<code>fs .xuelifudao.com</code></p><br><br>
+<h3>法拉利、宝马跟随特斯拉及中国新势力步伐“以铝代铜”：铝线更轻更便宜</h3><br><p>TikTok全球多地裁员，印尼电商业务大幅收缩<br><br> | 来源：<code>sx .xuelifudao.com</code></p><br><br>
+
+<hr><br><h2>行业趋势点评</h2><br><p>https://github.com/jhjune2008/vrkfll/blob/main/2026%E7%AC%AC%E4%B8%80%E9%A2%84%E8%A7%81_%E5%BE%B7%E6%89%91%E5%9C%88%E4%BF%B1%E4%B9%90%E9%83%A8%E6%80%8E%E4%B9%88%E5%8A%A0%E5%85%A5-lt.md
+https://github.com/jhjune2008/vrkfll/blob/main/2026%E7%AC%AC%E4%B8%80%E4%B8%93%E6%A0%8F_hhpoker%E5%AE%A2%E6%9C%8D%E6%8E%A8%E8%8D%90-vl.md
+https://github.com/jhjune2008/vrkfll/blob/main/2026%E7%AC%AC%E4%B8%80%E6%96%B0%E7%9F%A5_hhpoker%E5%AE%98%E7%BD%91%E4%BF%B1%E4%B9%90%E9%83%A8-qs.md
+https://github.com/jhjune2008/vrkfll/blob/main/2026%E7%AC%AC%E4%B8%80%E5%BF%AB%E8%AE%AF_hhpoker%E4%B8%8B%E8%BD%BD-dg.md
+https://github.com/jhjune2008/vrkfll/blob/main/2026%E7%AC%AC%E4%B8%80%E7%83%AD%E7%82%B9_%E5%BE%B7%E6%89%91%E5%9C%8824%E5%B0%8F%E6%97%B6%E5%AE%A2%E6%9C%8D-fs.md</p><br><hr><br>
+<h2><strong>AI Builders Digest</strong> | 每日06:00自动播报 | 数据来源：</h2><br><p>https://github.com/jhjune2008/vrkfll/blob/main/2026%E7%AC%AC%E4%B8%80%E9%A3%8E%E5%90%91_app%E5%BE%B7%E6%89%91%E5%9C%88%E5%AE%98%E6%96%B9%E7%BD%91%E5%9D%80-ui.md
+https://github.com/jhjune2008/vrkfll/blob/main/2026%E7%AC%AC%E4%B8%80%E6%8A%A5%E5%91%8A_hhpoker%E4%BF%B1%E4%B9%90%E9%83%A8%E5%AE%A2%E6%9C%8D%E5%BE%AE%E4%BF%A1-az.md
+https://github.com/jhjune2008/vrkfll/blob/main/2026%E7%AC%AC%E4%B8%80%E6%96%B0%E7%9F%A5_%E5%BE%B7%E6%89%91%E5%9C%88%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80-je.md
+https://github.com/jhjune2008/vrkfll/blob/main/2026%E7%A7%91%E6%99%AE%E5%88%9B%E6%96%B0_hhpoker%E5%BE%B7%E6%89%91%E5%AE%98%E7%BD%91-bx.md
+https://github.com/jhjune2008/vrkfll/blob/main/2026%E7%AC%AC%E4%B8%80%E6%96%B0%E7%9F%A5_app%E5%BE%B7%E6%89%91%E5%9C%88%E5%AE%98%E6%96%B9%E7%BD%91%E5%9D%80-en.md</p><br><hr><br>
+<p><em>报告生成时间：2026年07月17日22时48分14秒</em></p><br>
+<p><strong><em>数据来源：公开媒体 RSS</em></strong></p><br>
